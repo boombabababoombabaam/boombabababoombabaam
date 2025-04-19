@@ -1,5 +1,5 @@
 # 🧪 Adam Here  
-Student-ish | AI Tinkerer | Embedded Dev | Finance & Trading Addict  
+Student-ish | AI Enthusiast | Embedded Dev | Finance & Trading Addict  
 
 ---
 
